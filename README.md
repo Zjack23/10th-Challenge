@@ -43,4 +43,4 @@ For any questions, please reach out via:
 
 - Email: [zjack1298@gmail.com](mailto:zjack1298@gmail.com)
 
-- ![Untitled Video July 15, 2024 2_35 AM webm](https://github.com/user-attachments/assets/7f730180-121b-4366-acef-b808b4de6ee2)
+[Untitled Video July 15, 2024 2_35 AM.webm](https://github.com/user-attachments/assets/af0300f7-5f01-4e31-9591-b82a5a17821b)
